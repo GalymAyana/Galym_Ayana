@@ -1,1 +1,0 @@
-# Galym_Ayana
